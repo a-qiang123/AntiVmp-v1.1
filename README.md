@@ -11,7 +11,5 @@ qq群: 387430043
 
 看雪主页 https://bbs.kanxue.com/user-1004848.htm 
 
-抖音主页 https://v.douyin.com/6t2IqDeTlaE 
-
 b站主页 https://space.bilibili.com/3546956664146601
 
